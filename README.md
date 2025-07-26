@@ -1,2 +1,7 @@
 # mega12000
 androidcrackingsystemforwindows
+itmightnotworkbecauseoferrors
+ifyouneedotherfilestousethis
+youcangetitfrommyrepomega10000
+ifthereisawrongcode
+youcanwriteamessageonissues
